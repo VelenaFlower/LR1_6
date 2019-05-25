@@ -1,1 +1,1 @@
-https://velenaflower.github.io/LR1_6/
+https://velenaflower.github.io/LR1_6_animation/
